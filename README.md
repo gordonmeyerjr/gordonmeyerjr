@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gordonmeyerjr
-- 👀 I’m interested in blockchain, crypto, bitcoin, alt-coins, crypto trading, Metaverse, Virtual reality, Augmented Reality
+- 👀 I’m interested in AI, blockchain, crypto, bitcoin, alt-coins, crypto trading, Metaverse, Virtual reality, Augmented Reality
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me hit me up on twitter.
